@@ -6,4 +6,4 @@ United we stand, divided we fall
 
 Hey. Hey revant. Give me editing permission.
 
-It is hereby declared that revant is not allowed to make edits.
+Revant is now allowed to make edits.
